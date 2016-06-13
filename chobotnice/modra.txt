@@ -1,0 +1,1 @@
+Napísal som svoj prvý koment
